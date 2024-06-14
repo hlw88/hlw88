@@ -27,4 +27,4 @@
 
 请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
 
-（https://github.com/hlw88获取黑最新网址）
+https://github.com/hlw88   获取最新网址
