@@ -10,9 +10,9 @@
 
 黑料网备用线路 https://heiliao.shop
 
-黑料网永久地址（需科学⬆️网工具）hlw88.cc
+黑料网永久地址（需科学⬆️网工具）[hlw88.cc](https://hlw88.cc)
 
-黑料网永久地址（需科学⬆️网工具）heiliao.shop
+黑料网永久地址（需科学⬆️网工具）[heiliao.shop](https://heiliao.sho)
 
 🤝商务合作🤝联系 hlw666888@outlook.com
 
