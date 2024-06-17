@@ -14,7 +14,6 @@
 
 黑料网永久地址（需科学⬆️网工具）[heiliao.shop](https://heiliao.shop)
 
-【商务合作】联系 hlw666888@outlook.com
 
 网址打不开？？？
 
